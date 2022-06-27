@@ -5,4 +5,4 @@ PS (referred to mak): mak, your 14 yo' slave (TheH3xRayz) cannot make a proper i
 if you need anything dm me on android#2731 \
 I've added the bypass to their dogshit integritycheck which is a meme 😂 :trollface:
 
-Available on: https://reverse.wiki/keyauth
+Available on: https://keyauth-bypass.000webhostapp.com/
